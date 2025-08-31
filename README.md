@@ -1,1 +1,1 @@
-# -Training-Group-G2
+# Training-Group-G2
